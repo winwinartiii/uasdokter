@@ -9,4 +9,4 @@
 ![Uploadin
 ![Screenshot_20200718-185648](https://user-images.githubusercontent.com/37542158/87852357-70b66600-c92b-11ea-9177-b10a2c9b746f.png)
 2. Link Youtube
-[https://youtu.be/-O012znakfo](url)
+https://youtu.be/-O012znakfo
